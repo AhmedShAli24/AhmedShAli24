@@ -26,6 +26,7 @@
 
 ### ✉️ Contact
 
-Feel free to contact me on [LinkedIn](www.linkedin.com/in/ahmed-ali24).
+Feel free to contact me on [LinkedIn](https://www.linkedin.com/in/ahmed-ali24).
+
 
 
